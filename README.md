@@ -1,1 +1,1 @@
-# LEARNING
+Repo just created to practice thecnologies are learning # LEARNING
